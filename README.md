@@ -1,6 +1,3 @@
-
-![honey_badger](https://github.com/user-attachments/assets/dbfaccd3-533f-4fbe-ae51-870a89e13534)
-
 ## Welcome to My GitHub Profile! 👋
 
 ### About Me
